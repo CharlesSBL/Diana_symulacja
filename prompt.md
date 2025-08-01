@@ -1,0 +1,1 @@
+Na podstawie tekstu stworz nowelle, zaczniej od poczatku, ma byc to horror psychologiczny (jak wladza much, american psycho)
